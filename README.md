@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Agustin
+- 👀 I’m interested in technology and new forms of develop things
+- 🌱 I’m currently learning python
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I Love to talk with others
